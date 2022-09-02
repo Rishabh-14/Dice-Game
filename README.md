@@ -1,4 +1,3 @@
-# czL6wWsD
 
 Quick start:
 
